@@ -1,2 +1,1 @@
 # reimagined-goggles
-Everyday Updated :)
